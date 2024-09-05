@@ -11,13 +11,15 @@ I like music - Zach
 
 
 
-
+# I got a whole 7 and a half hours of sleep last night. ~ Easton
 
 
 
 Alex Teeple commit- "Fish are not real".
 
 
-
+This is Joshua, I swear golf is not boring just trust me
 
 # I forgot to eat breakfast, whoops - Allison
+
+Name is Alexys. I have donuts for breakfast.
