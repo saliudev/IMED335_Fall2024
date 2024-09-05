@@ -26,3 +26,5 @@ This is Joshua, I swear golf is not boring just trust me
 
 Name is Alexys. I have donuts for breakfast.
 My name is Kory Brown, I'm currently rewatching death note
+
+I have a crippling addiction to gacha games - Sydney
