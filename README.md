@@ -23,3 +23,4 @@ This is Joshua, I swear golf is not boring just trust me
 # I forgot to eat breakfast, whoops - Allison
 
 Name is Alexys. I have donuts for breakfast.
+My name is Kory Brown, I'm currently rewatching death note
