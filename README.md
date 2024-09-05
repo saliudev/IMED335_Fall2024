@@ -6,7 +6,7 @@ This is a practice repo for class on Sep. 3
 
 My name's Nick Johnson, and I got an ace in Valorant last night.
 
-
+I like music - Zach
 
 # I designed fundamental ideas for a 3D platformer/combat game yesterday. - Joseph R.
 
@@ -18,7 +18,7 @@ My name's Nick Johnson, and I got an ace in Valorant last night.
 Alex Teeple commit- "Fish are not real".
 
 
-
+This is Joshua, I swear golf is not boring just trust me
 
 # I forgot to eat breakfast, whoops - Allison
 
