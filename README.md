@@ -11,6 +11,7 @@ My name's Nick Johnson, and I got an ace in Valorant last night.
 I like music - Zach
 
 # I designed fundamental ideas for a 3D platformer/combat game yesterday. - Joseph R.
+This text is from my own branch.
 
 
 # I got a whole 7 and a half hours of sleep last night. ~ Easton
