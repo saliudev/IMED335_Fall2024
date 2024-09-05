@@ -11,7 +11,7 @@ My name's Nick Johnson, and I got an ace in Valorant last night.
 
 
 
-
+# I got a whole 7 and a half hours of sleep last night. ~ Easton
 
 
 
