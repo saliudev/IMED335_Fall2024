@@ -8,7 +8,7 @@ My name's Nick Johnson, and I got an ace in Valorant last night.
 
 
 
-
+# I designed fundamental ideas for a 3D platformer/combat game yesterday. - Joseph R.
 
 
 # I got a whole 7 and a half hours of sleep last night. ~ Easton
